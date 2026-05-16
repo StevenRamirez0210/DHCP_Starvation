@@ -167,6 +167,3 @@ https://abcxperts.com/que-es-un-ataque-dhcp-starvation/?srsltid=AfmBOooKvQVVhbUA
 https://www.youtube.com/watch?v=2JveaM8AHLo
 
 [https://www.youtube.com/watch?v=hx_ScUFb7KI](https://www.youtube.com/watch?v=042ZiAYFIO0)
-
-## VIDEO: 
-https://gvaedu-my.sharepoint.com/:v:/r/personal/oscgilmar_alu_edu_gva_es/Documents/PROYECTO-OscarGil.mp4?csf=1&web=1&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=NecT0U
